@@ -1,0 +1,2 @@
+# sosial
+Aku gabut
